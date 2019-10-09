@@ -1,0 +1,10 @@
+# PBO
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_35_49.png)
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_36_00.png)
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_36_08.png)
+# eksplorasi
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_39_28.png)
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_40_19.png)
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_40_29.png)
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_40_39.png)
+![Alt Text](https://github.com/leo-gaming/PBO/blob/master/PBO%20-%20NetBeans%20IDE%208.2%2009_10_2019%2016_40_49.png)
